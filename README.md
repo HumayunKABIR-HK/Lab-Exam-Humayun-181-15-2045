@@ -1,2 +1,2 @@
-# Lab-Exam-Humayun-181-15-2045
+# Lab-Exam-Humayun
 Assalamu Alaikum
